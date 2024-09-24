@@ -1,0 +1,1 @@
+Icons for Scarlet and Violet Pokémon from [National Pokédex Version Delta Icon Dex](https://www.deviantart.com/mbcmechachu/art/National-Pokedex-Icon-Dex-824897934) project and its [contributors](https://docs.google.com/spreadsheets/d/1kI_PDXnbghxjN2LBvxA6Pz-QqMYlVGN3Z1EivXOYwNY/edit?gid=0#gid=0).
